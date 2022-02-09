@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @galihreihan
-- 👀 I’m interested in it things
+- 👀 I’m interested in technology world
 - 🌱 I’m currently learning this
 - 💞️ I’m looking to collaborate one day
 - 📫 How to reach me i have instagram @r.galihfarrel
